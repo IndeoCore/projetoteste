@@ -1,0 +1,1 @@
+Aqui eu desenvolverei a história principal do meu personagem.
